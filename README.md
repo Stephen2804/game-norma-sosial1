@@ -1,0 +1,1 @@
+# game-norma-sosial1
